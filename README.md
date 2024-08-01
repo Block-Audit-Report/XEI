@@ -1,3 +1,3 @@
 # XEI
 
-![XEI x BlockAudit](https://github.com/user-attachments/assets/5e6eb209-5a59-4c33-b546-f0a6f1f6d2a4)
+![XEI-KYC](https://github.com/user-attachments/assets/5b33a42d-9f48-4d42-9111-8e628fbd2596)
